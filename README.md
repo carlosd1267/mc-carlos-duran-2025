@@ -1,1 +1,0 @@
-# mc-carlos-duran-2025
